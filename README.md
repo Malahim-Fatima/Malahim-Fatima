@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Malahim-Fatima
 - 👀 I’m interested in dancing
 - 🌱 I’m currently learning welding
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on mouse digestive system
+- 📫 How to reach me by rikshaw or cycle
 - 😄 Pronouns: churail
 - ⚡ Fun fact: looking like tati
 
